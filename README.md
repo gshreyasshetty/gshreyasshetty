@@ -1,4 +1,3 @@
-### 🌟 Hi!..... I'm G Shreyas Shetty 👋
 
 ```
 🚀 Computer Science & Data Science Enthusiast  
