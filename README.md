@@ -23,7 +23,7 @@
 
 ## 🔗 Connect With Me
 
-[LinkedIn](#) • [Portfolio](#) • [Email](mailto:gshreyasshetty@gmail.com)
+[LinkedIn](http://linkedin.com/in/gshreyasshetty) • [Portfolio](https://gshreyasshetty.vercel.app/) • [Email](mailto:gshreyasshetty@gmail.com)
 
 ---
 
